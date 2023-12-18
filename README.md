@@ -1,0 +1,1 @@
+# WINDOW_FRAMES_Feruz_Farxodov
